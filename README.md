@@ -73,4 +73,4 @@ you've just cloned!!
 ## Group
 * [`WhatsApp`](https://chat.whatsapp.com/KLfjq8AK4Jz62Pqfz5sv0v)
 ### Donate
-* [`Saweria`](https://saweria.co/donate/mhankbarbar)
+* [`Saweria`](https://saweria.co/rey404)
